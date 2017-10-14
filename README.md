@@ -1,2 +1,1 @@
-Yo
-Oh hey there!
+Yes i am lazy little slob :o
